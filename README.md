@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Erwann-ops
 - 👀 I’m interested in hack controllers 
-- 🌱 I’m currently learning hack
+- 🌱 I’m currently learning l'anglais 
 - 💞️ I’m looking to collaborate on you
 - 📫 How to reach me pls
 - ⚡ Fun fact: i love video game 
